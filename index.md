@@ -12,3 +12,5 @@ Flóki Vilgerðarson (born c. 9th century) was the first Norseman to intention
 ## Quote
 
 > The space between life and death, that’s where we are the most alive.
+
+<img src="floki.jpg"/>
