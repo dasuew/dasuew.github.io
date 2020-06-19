@@ -1,6 +1,7 @@
-# Flóki Vilgerðarson (in fiction)
+[dasuew.github.io](https://dasuew.github.io).
+# Flóki Vilgerðarson
 
-Floki, a character played by Swedish actor Gustaf Skarsgård in the History channel's Vikings television series, is loosely based on Hrafna-Flóki Vilgerðarson. In season 5 of the show he arrives in Iceland, believing he has found Asgard.
+Flóki Vilgerðarson (born c. 9th century) was the first Norseman to intentionally sail to Iceland. His story is documented in the Landnámabók manuscript; however, the precise year of his arrival is not clear. He settled in this new land then known as Garðarshólmi.
 
 ## What to like about Flóki
 
