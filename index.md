@@ -8,3 +8,7 @@ Flóki Vilgerðarson (born c. 9th century) was the first Norseman to intention
 * great shipbuilder
 * awesome fighter
 * nice haircut
+
+## Quote
+
+> The space between life and death, that’s where we are the most alive.
